@@ -1,4 +1,4 @@
-# FinalProject
+# Final Project
 ***
 For this project I was inspired by my previous works with triangulation and how triangle could interact in a space. I decided
 that I had wanted to do some work with cacti or succulents, but other than that no clear plan was in sight. I looked into many
