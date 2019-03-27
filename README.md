@@ -7,7 +7,7 @@ triangles had finally meshed it was done, and I could see the end. I decided it 
 photoshop, so this project would be authentically mine. 
 
 There were many challenges that faced me during this final and at times I honestly felt like it was not going to get done. I
-did not anticipate for this project to be as difficult as I expected,but am happy for the challenge. 
+did not anticipate for this project to be as difficult as it was,but am happy for the challenge. 
 
 # Inspiration Image:
 ***
